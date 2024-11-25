@@ -1,4 +1,4 @@
-# Haiii
+# Hai!
 
-I'm a goofy little nerd...
+I'm a goofy nerd
 Not much to explain here...
